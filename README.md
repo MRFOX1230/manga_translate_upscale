@@ -1,0 +1,1 @@
+# manga_translate_upscale
